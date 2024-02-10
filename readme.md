@@ -12,7 +12,7 @@ essa realidade, por ver como as pessoas são tratadas, me despertou uma vontade 
 exercer é exercer com execelência, pois é o que eu não costumo ver.A forma como somos tratados dentro de um hospital chega a ser desehumano 
 não cabe a mim generalizar, é obvio que nem tudo é assim, mas isso me fez querer ser uma medica mais humana e tratar as pessoas como elas merecem. 
       a filosofia de vida é baseada naquilo que se pensa, que se vive e que se planeja, a minha é baseada em ter um futuro onde farei a diferença aos
-que estão ao meu redor, me considero dedicada e esforçado, muita das vezes o esforço alcança a inteligência, e com isso se leva a vida. Tudo depende 
+que estão ao meu redor, me considero dedicada e esforçada, muita das vezes o esforço alcança a inteligência, e com isso se leva a vida. Tudo depende 
 de como você infrenta ela,temho uma amiga  que costuma dizer que a vida é como uma onda ou você pega ela ou se afoga, se afogar você afunda e essa é 
 a minha filosofia de vida. Adoro dançar, pra mim é uma das melhores coisas, a sensação é libertadora, amo estar com minha família e também conhecer 
 lugares novos, é assim que me desistresso. tenho uma personalidade forte eu diria, e os meus principios são muitos baseados na minha religião que no
