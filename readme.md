@@ -17,5 +17,5 @@ de como você infrenta ela,temho uma amiga  que costuma dizer que a vida é como
 a minha filosofia de vida. Adoro dançar, pra mim é uma das melhores coisas, a sensação é libertadora, amo estar com minha família e também conhecer 
 lugares novos, é assim que me desistresso. tenho uma personalidade forte eu diria, e os meus principios são muitos baseados na minha religião que no
 caso é a cristã, então levo a vida de acordo com os meus pricncipios e sou muito grata por tudo que acontece na minha vida.
-       portanto se você não definir um curso pra sua vida tudo acaba sendo em vão, e essa sou eu, da forma mais simples e humana possivél , com todos 
-os meus traços e personalidade e acredito que muitas pessoas me veem assim dessa mesma forma na qual eu descrevo  
+       Portanto se você não definir um curso pra sua vida tudo acaba sendo em vão, e essa sou eu, da forma mais simples e humana possivél , com todos 
+os meus traços e personalidade e acredito que muitas pessoas me veem assim dessa mesma forma na qual eu descrevo.  
